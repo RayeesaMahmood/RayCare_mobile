@@ -1,1 +1,0 @@
-# RayCare_mobile
